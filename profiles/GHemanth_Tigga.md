@@ -5,7 +5,7 @@
 Punjab, India
 
 ### Academics
-
+ 
 BE-CSE from Chitkara University, India
 
 ### Interests

@@ -1,5 +1,5 @@
 #### Name: [G.Hemanth Tigga](https://github.com/HemanthTigga)
-- Place: Punjab, India
+- Place: Punjab,  India
 - Bio: Final Year Student at Chitkara University, Punjab, India
 - GitHub: [G.Hemanth Tigga](https://github.com/HemanthTigga)
 #### Name: Vallenain
